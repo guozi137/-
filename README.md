@@ -10,4 +10,4 @@
 7.chatgpt对接<br>
 
 # 官方交流群
-QQ：759526254
+QQ：[759526254](https://qm.qq.com/cgi-bin/qm/qr?authKey=vR2YKKC%2Bpts9ktCTegzxx1zRnM1wW5efr%2BQsPZZh0Mg94hncOGQGx1LDmZuczuUF&k=PV_m9OeW5WiaR1pCvuNycm2_OHnbd2YH&noverify=0)
